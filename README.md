@@ -1,1 +1,9 @@
 ![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/1мок.PNG)
+![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/%3Bkl%3Bk%3Bj.PNG)
+![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/adafsdf.PNG)
+![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/sdfdfwest.PNG)
+![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/weeryeryy.PNG)
+![alt text]
+![alt text]
+![alt text]
+![alt text]
