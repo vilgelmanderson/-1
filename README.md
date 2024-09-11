@@ -3,7 +3,7 @@
 ![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/adafsdf.PNG)
 ![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/sdfdfwest.PNG)
 ![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/weeryeryy.PNG)
-![alt text]
+![alt text](https://github.com/vilgelmanderson/-1/blob/main/Тема_1/Отправил%20репозиторий.PNG)
 ![alt text]
 ![alt text]
 ![alt text]
